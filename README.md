@@ -1,4 +1,4 @@
-test
+Here will me my CV for further carrier achievments ;)
 ====
 
-test repo for git studing
+My resumes.
