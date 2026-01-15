@@ -1,4 +1,4 @@
-Here will me my CV for further carrier achievments ;)
+Here will be my CV for further carrier achievments ;)
 ====
 
 My resumes.
